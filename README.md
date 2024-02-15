@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @asterobiology
+- 👀 I’m interested in linguistics, physics, bioengineering, maths, and messing with tech!
+- 🌱 I’m currently learning Python, Java, HTML/CSS, JS
+- 📫 How to reach me @asterobiology on Tumblr or Discord!
+- 😄 Pronouns: she/they
+- ⚡ Fun fact: Hexagons are the Best-Agons
